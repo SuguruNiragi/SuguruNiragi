@@ -1,16 +1,19 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://i.ibb.co/SDbJ1v0x/2025-02-18-07q-Kleki.png" alt="hi">
+</p>
+<p align="center">
+Archie　ₒᵣ　Kay　,　16yo　,　DiDsystem　,　tkn
+</p>
+<p align="center">
+usually　offtab　or　afk　,　pls　w2i　or　i　wont　see　!
+<p align="center">
+C+H　are　always　welcome　,　i　have　touch　comfort　:3 
+</p>
+<p align="center">
+im　tha　#1　siwan　,　whj　,　and　ldw　fan　ever　...
+</p>
 
-<!--
-**SuguruNiragi/SuguruNiragi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  <img src="https://files.catbox.moe/jdsc7n.png" alt="hi">
+</p> 
