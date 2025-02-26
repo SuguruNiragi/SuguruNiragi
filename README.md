@@ -2,7 +2,7 @@
   <img src="https://i.ibb.co/SDbJ1v0x/2025-02-18-07q-Kleki.png" alt="hi">
 </p>
 <p align="center">
-Archie　ₒᵣ　Kay　,　16yo　,　DiDsystem　,　tkn
+Archie　ₒᵣ　Sannie　,　16yo　,　DiDsystem　,　tkn x2
 </p>
 <p align="center">
 usually　offtab　or　afk　,　pls　w2i　or　i　wont　see　!
